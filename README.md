@@ -1,4 +1,4 @@
-🚀 Space Journey: Galaxy Guardians 🪐
+🚀 Konsol kahramanı🪐
 "Karakter büyük bir mücadele veriyor peki neden?"
 
 Hoş geldiniz, kahraman! konsol karakterim senin için hayatta kalmaya çalıyor onun bu mücadelesi görmezden gelme ve sende ona ayrdım ett hadi başlayalım. dikkatli ol zombiler her zaman seni öldürmek için ikinci bir plan kurmuştur puanın 5 oldukdan sonra bombalara dikkat et
